@@ -1,5 +1,5 @@
 - 👋 Hi, I’m LilOstap
-- 👀 I’m interested in ...))
+- 👀 I’m interested in ...))rgghtewwwrvvvdrs
 - 🌱 I’m currently learning dota2
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...fdjuhgjvmkdfg

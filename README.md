@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...))dfcyuno;
 - 🌱 I’m currently learning dota2
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me .. erngfue4iot
+- 📫 How to reach me .. gtfiyiguhuij5ytrjhrt
 - 😄 Pronouns: 777 casic
 - ⚡ Fun fact: ..wowowo
 LilOstap/LilOstap is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
